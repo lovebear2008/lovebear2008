@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @lovebear2008
+- 👀 I’m interested in programming
